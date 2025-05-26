@@ -1,2 +1,2 @@
-# WarningMyCrush
-# Facebook: https://www.facebook.com/n.lamn
+# Cố lên nha! Tự tin, bình tĩnh làm hết sức, đậu hết môn!
+
